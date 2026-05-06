@@ -13,5 +13,7 @@ Here are some ideas to get you started:
 - 🤔 I need @pankoza2-pl's help because I have some difficult problems in C++
 - 💬 Currently focusing on: NeoarsphenamineR.exe(no more idea for this malware)
 - 📫 How to reach me: https://space.bilibili.com/3546842902038662/ or send e-mail at lambdaexe114@foxmail.com
-- ⚡ Fun fact: Some of my malwares are 'skidded' because they are soooooooooo sh*tty
-- 🐵 My Statement: I'm a Chinese, but I didn't afraid about @N17Pro3426 or @mazeicon's skidding(ꌚꂦ ꌚꋖꂦꉣ ꌚꀗꂑꂠꂠꂑꋊꁅ!!!𝖘𝖙𝖔𝖕 𝖘𝖐𝖎𝖉𝖉𝖎𝖓𝖌!!!ᏕᏖᎧᎮ ᏕᏦᎥᎴᎴᎥᏁᎶ!!!)
+- ⚡ Fun fact: I'm a Chinese, but I didn't afraid about @N17Pro3426 or @mazeicon's skidding
+> [!CAUTION]
+> All of my malwares are skidded, except Neoarsphenamine,Caesium,Alkyl-octanitrogen,antimilitarium,rapacuronium,Lumina Star&Stuffed Melon!!!
+> (Btw my skidded malwares weren't showed in my Bilibili videos)
