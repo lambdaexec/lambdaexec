@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: https://space.bilibili.com/3546842902038662/ or send e-mail at lambdaexe114@foxmail.com
 - ⚡ Fun fact: I'm a Chinese, but I didn't afraid about @N17Pro3426 or @mazeicon's skidding
 > [!CAUTION]
-> All of my malwares are skidded, except Neoarsphenamine,Caesium,Alkyl-octanitrogen,antimilitarium,rapacuronium,Lumina Star&Stuffed Melon!!!
+> All of my malwares are skidded, except Polonium, Platinum, Neoarsphenamine,Caesium,Alkyl-octanitrogen,antimilitarium,rapacuronium,Lumina Star&Stuffed Melon!!!
 > (Btw my skidded malwares weren't showed in my Bilibili videos)
