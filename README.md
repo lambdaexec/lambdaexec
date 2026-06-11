@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - Btw @wilber-20130410 is my classmate who focus on Python
 > [!CAUTION]
 > Everyone should have their own status, without any distinction of superiority or inferiority.
+> 
 > Although I'm a skidder, but I won't I won't leave GDI community!!!!!!
