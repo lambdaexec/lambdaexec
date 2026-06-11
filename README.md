@@ -1,5 +1,5 @@
 ## Hi there👋
-## This is LambdaTech, a malware tester and maker
+## This is LambdaTech, a skidder
 
 <!--
 **lambdaexec/lambdaexec** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 👯 Age: 13
 - Btw @wilber-20130410 is my classmate who focus on Python
 > [!CAUTION]
-> Polonium, Platinum, Neoarsphenamine,Caesium,Alkyl-octanitrogen,antimilitarium,rapacuronium,Lumina Star&Stuffed Melon were NOT SKIDDED(others are skidded&shit)
-> (Btw my skidded malwares weren't showed in my Bilibili videos, and I WON'T making skidded malwares)
+> Everyone should have their own status, without any distinction of superiority or inferiority.
+> Although I'm a skidder, but I won't I won't leave GDI community!!!!!!
