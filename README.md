@@ -1,6 +1,6 @@
 <!--
 ## Hi there👋
-## This is LambdaTech, a skidder
+## This is LambdaTech, a malware maker 
 
 
 **lambdaexec/lambdaexec** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,8 +13,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: I'm a Chinese, but I didn't afraid about @N17Pro3426 or @mazeicon's skidding
 - 👯 Age: 13
 - Btw @wilber-20130410 is my classmate who focus on Python
-> [!CAUTION]
-> Everyone should have their own status, without any distinction of superiority or inferiority.
+
 > 
-> Although I'm a skidder, but I won't I won't leave GDI community!!!!!!
+> 
 -->
+i'm going to make shpvatanmne.exe with ultradasher965
