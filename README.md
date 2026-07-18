@@ -13,6 +13,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: NO
 - 👯 Age: 13
 - @wilber-20130410 is my classmate who focus on Python
+- New malware update list:shpxvatanmne.exe in 7/31, Flame Cattail.exe in August
 
 <!--
 btw n17pro3426 still being racist & skidder and denying our status.
