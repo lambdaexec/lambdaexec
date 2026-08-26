@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - PLZ BLOCK MAZELARPER(@UnderwaterTinyKong/@UnderwaterTinyKongv1.5/@UnderwaterTinyKongv2) ON THE YOUTUBE&GITHUB.
 
 # SYBAU NIGGA MAZELARPER NO SKID NO AI PLZZZZ @MazeIcon
-- "... & LambdaTech (@LambdaTech-w3o) are Hate China & Trash & Skidded Malware!!!!!!"🤣 🎉 🙏STFU NIGGA I'M JUST IN CHINA
+- "... & LambdaTech (@LambdaTech-w3o) are Hate China & Trash & Skidded Malware!!!!!!"🤣 🎉 🙏SYBAU NIGGA MAZELARPER I'M JUST IN CHINA
 - "N17Pro3426 is Silly Wedding For Real!!!!!!!, because N17Pro3426 Edit this readme!!!!!!!!!!!! For All Time!!!!!!!! + that hate & sftu me like "this nih lying" + "nga, leave the GDI before it leaves you :laugh: :draghand"🤣 🎉 🙏
 - "N17Pro3426 Love Silly Wedding For Real!!!!!!!, because N17Pro3426 Edit this readme!!!!!!!!!!!! For All Time!!!!!!!!"🤣 🎉 🙏
 - "UltraDasher965 Is Silly Wedding For Real!!!!!!!,UltraDasher965 Make a Trash Malware"🤣 🎉 🙏
