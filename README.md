@@ -11,6 +11,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate with two good malware makers:@AWJDXUGE @ShuilongWXZoey
 - 📫 How to reach me: https://space.bilibili.com/3546842902038662/ or send e-mail at lambdaexe114@foxmail.com
 - 👯 Age: 13
+- update list:PSR J0727-3305.exe by me&@venratech/@venrastuff
 - ⚡ "fun" fact(it's for real): cattyx0r/x0anix/Elias201478 a.k.a. larperix&mazeicon a.k.a mazelarper make bad&ai&skidded&shit malwares
 - PLZ BLOCK MAZELARPER(@UnderwaterTinyKong/@UnderwaterTinyKongv1.5/@UnderwaterTinyKongv2) ON THE YOUTUBE&GITHUB.
 
