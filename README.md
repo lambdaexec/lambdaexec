@@ -1,6 +1,6 @@
 
 ## Hi there👋
-### This is LambdaTech, a malware maker 
+### This is LambdaTech, a malware maker that NOT using AI in the entire Internet.
 
 <!--
 **lambdaexec/lambdaexec** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
