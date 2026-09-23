@@ -8,7 +8,7 @@
 Here are some ideas to get you started:
 -->
 - 🌱 I’m currently learning C++
-- 👯 I’m looking to collaborate with two good malware makers:@AWJDXUGE @ShuilongWXZoey
+- 👯 I’m looking to collaborate with two good malware makers: @AWJDXUGE & camellia-y7x
 - 📫 How to reach me: https://space.bilibili.com/3546842902038662/ or send e-mail at lambdaexe114@foxmail.com
 - 👯 Age: 13
 - update list:PSR J0727-3305.exe by me&@venratech/@venrastuff
