@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate with two good malware makers: @AWJDXUGE & camellia-y7x
 - 📫 How to reach me: https://space.bilibili.com/3546842902038662/ or send e-mail at lambdaexe114@foxmail.com
 - 👯 Age: 13
-- ⚡ update list:PSR J0727-3305.exe by me&@venratech/@venrastuff & Crescentium
+- ⚡ update list:PSR J0727-3305.exe by me&@venratech/@venrastuff & Golden Garlic
 - "fun" fact(it's for real): cattyx0r/x0anix/Elias201478 a.k.a. larperix&mazeicon a.k.a mazelarper make bad&ai&skidded&shit malwares
 - PLZ BLOCK MAZELARPER(@UnderwaterTinyKong/@UnderwaterTinyKongv1.5/@UnderwaterTinyKongv2) ON THE YOUTUBE&GITHUB.
 
@@ -36,7 +36,7 @@ Here are some ideas to get you started:
 
 
 <!--
-btw n17pro3426 still being racist & skidder and denying our status.
+btw mazelarper still being racist & skidder and denying our status.
 I won't leave GDI community until he stop skidding.
 -->
 
