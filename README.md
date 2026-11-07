@@ -8,7 +8,7 @@
 Here are some ideas to get you started:
 -->
 - 🌱 I’m currently learning C++
-- 👯 I’m looking to collaborate with two good malware makers: @AWJDXUGE & camellia-y7x
+- 👯 friends: XUGE(@XUGE-k8r), DogeTech/N17Pro3426(@nazar7346), UltraDasher965(@UltraDasher965), Nyexev/hexademical(@nyexev)
 - 📫 How to reach me: https://space.bilibili.com/3546842902038662/ or send e-mail at lambdaexe114@foxmail.com
 - 👯 Age: 13
 - Discord acc:lambdatech_76695
